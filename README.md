@@ -129,4 +129,3 @@ ABHISHEK SEEDARLA is a Software Engineer with 1+ years of professional experienc
 
 Contact:
 - Email: seedarlaabhishek62@gmail.com
-- LinkedIn: https://linkedin.com/in/naga-bhavani-652753225
